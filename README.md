@@ -10,4 +10,4 @@ github를 처음 배우고있습니다.
 
 ##sns
 
-wodud01213@gmail.com로 연락주세요!
+kjeayoung@yu.ac.kr로 연락주세요!
